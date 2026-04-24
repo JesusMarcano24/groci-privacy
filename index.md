@@ -28,4 +28,4 @@ Puedes eliminar tu cuenta y todos tus datos en cualquier momento desde la secci�
 
 ## Contacto
 
-Si tienes preguntas sobre esta política, escríbenos a **jesusmarcanu24@gmail.com**.
+Si tienes preguntas sobre esta política, escríbenos a **jesusmarcanu24@gmail.com**. 
